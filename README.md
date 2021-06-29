@@ -2,4 +2,4 @@
 
 Hi People!
 
-Hisashi here. Nice to meet you.
+Hisashi here. Nice to meet you!
